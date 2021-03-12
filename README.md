@@ -1,0 +1,2 @@
+# HOME_PAGE_SATI_BRIGHT_SITE
+Home page
